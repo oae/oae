@@ -1,1 +1,3 @@
-![](https://static.ezgif.com/images/bg-transparent.gif)
+<p align="center">
+  <img src="https://media.giphy.com/media/bcKmIWkUMCjVm/giphy.gif" />
+</p>
