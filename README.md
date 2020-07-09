@@ -1,1 +1,1 @@
-![](https://i.imgur.com/vGPlVsM.jpg)
+![](https://static.ezgif.com/images/bg-transparent.gif)
